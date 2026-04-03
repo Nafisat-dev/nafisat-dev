@@ -114,4 +114,4 @@ Specializing in **Shopify store creation, custom themes, app integrations, and r
 
 ---
 
-Feel free to reach out – I’d love to collaborate on your next project!
+Feel free to reach out – I’d love to collaborate on your next project
